@@ -1,4 +1,4 @@
-# 
+# ultimate Glary Utilities para PC plugins é o melhor Glary Utilities para PC plugins com remocao de arquivos temporarios e suporte a scripts. Seguro, confiável e otimizado para
 
 
 
